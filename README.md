@@ -1,3 +1,4 @@
+![изображение](https://github.com/Tr1aX-L/anime-list/assets/110736991/c65bab3e-650b-4486-a912-d4ad38a1e412)
 Путь становления адекватным человеком:<br/>
 1. Досмотреть "Когда плачут цикады"<br/>
 	>[2 сезон](https://animego.org/anime/kogda-plachut-cikady-razgadki-1634)<br/>
