@@ -1,5 +1,6 @@
 [![изображение](https://i.pinimg.com/736x/fa/ae/ff/faaeff03383e0de1008f46ad7da03667.jpg)<br/>
-Путь становления адекватным человеком:<br/>
+
+#Путь становления адекватным человеком:<br/>
 1. Досмотреть "Когда плачут цикады"<br/>
 	>[2 сезон](https://animego.org/anime/kogda-plachut-cikady-razgadki-1634)<br/>
 	>[3 сезон](https://animego.org/anime/kogda-plachut-cikady-1612)<br/>
