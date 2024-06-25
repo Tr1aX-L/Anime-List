@@ -1,4 +1,4 @@
-[![изображение](https://i.pinimg.com/736x/fa/ae/ff/faaeff03383e0de1008f46ad7da03667.jpg)<br/>
+![изображение](https://i.pinimg.com/736x/fa/ae/ff/faaeff03383e0de1008f46ad7da03667.jpg)<br/>
 
 # Путь становления адекватным человеком:<br/>
 1. Досмотреть "Когда плачут цикады"<br/>
